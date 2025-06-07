@@ -25,7 +25,3 @@
 ![img1](https://github.com/polljii/my365/blob/main/my3651.png)
 
 ![img2](https://github.com/polljii/my365/blob/main/my3652.png)
-
-![img3](https://github.com/polljii/my365/blob/main/my3653.png)
-
-![img4](https://github.com/polljii/my365/blob/main/my3654.png)
